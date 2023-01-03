@@ -1,0 +1,1 @@
+# Veri-Bilimi-101-Turkce
